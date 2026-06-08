@@ -15,8 +15,10 @@
 🌐 Socials:
 LinkedIn 
 www.linkedin.com/in/amar-dangi-20921022a
+
 Email
 amardangi046@gmail.com
+
 Mobile NUmber 
 8319097602
 
