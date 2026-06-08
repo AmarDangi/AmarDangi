@@ -1,4 +1,5 @@
 💫 About Me:
+
 🔭 I’m currently working on: Scalable Ruby on Rails applications & REST APIs
 
 🤝 I’m looking to collaborate on: Open-source Rails and Backend projects
