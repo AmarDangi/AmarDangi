@@ -19,7 +19,7 @@ www.linkedin.com/in/amar-dangi-20921022a
 Email
 amardangi046@gmail.com
 
-Mobile NUmber 
+Mobile Number 
 8319097602
 
 💻 Tech Stack:
